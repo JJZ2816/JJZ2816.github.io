@@ -1,1 +1,1 @@
-<JJZ2816.github.io>
+<https://JJZ2816.github.io>
